@@ -1,0 +1,2 @@
+# khodaya
+komak
